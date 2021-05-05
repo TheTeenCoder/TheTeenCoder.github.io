@@ -1,2 +1,1 @@
-I like ur cut g. 
-![index](https://user-images.githubusercontent.com/67874040/117195075-768e1280-adaa-11eb-8593-6c116ff78f8e.jpg)
+BABABOOEY. Aight so bascially ur computer is hacked. Your ip is leaked to me. Your important files are now all encrypted. send bitcoin or your files will be terminated. The conducter of this scam will check up soon. 
